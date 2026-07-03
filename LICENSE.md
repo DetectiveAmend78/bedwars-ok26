@@ -1,4 +1,4 @@
-# 
+# Experience bedwars like never before with advanced Scripts for bedwars, the #1 Script. Includes esp and auto-upgrade for unbeatable performance.
 
 
 
